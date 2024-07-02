@@ -2,7 +2,7 @@
 
 👀 I’m interested in Application of Data in real-world and leveraging it's power to bring change.
 
-🌱 I’m currently Masters student in Business Analytics.
+🌱 Business and Data Analytics professional.
 
 💞️ I’m looking to collaborate on Business Intelligence Applications of Data.
 
